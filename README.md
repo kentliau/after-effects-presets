@@ -1,0 +1,1 @@
+1. [8-Bit Look](http://cgi.tutsplus.com/tutorials/quick-tip-create-an-8-bit-style-in-after-effects--ae-29251)
